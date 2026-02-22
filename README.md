@@ -1,0 +1,2 @@
+# buatjaraaa.
+hubungan 
